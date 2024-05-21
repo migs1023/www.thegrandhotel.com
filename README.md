@@ -1,1 +1,1 @@
-# www.thegrandhotel.com
+# www.grandhotel.com
